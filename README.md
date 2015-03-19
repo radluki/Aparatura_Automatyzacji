@@ -1,0 +1,1 @@
+# Aparatura_Automatyzacji
